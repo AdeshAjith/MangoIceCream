@@ -1,5 +1,5 @@
 Mango
 
-Heavy or whipping cream
+Whipping cream
 
 White sugar
