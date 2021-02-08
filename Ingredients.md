@@ -1,5 +1,5 @@
-Mango
+*Mango
 
-Whipping cream
+*Whipping cream
 
-White sugar
+*White sugar
